@@ -18,5 +18,5 @@ I sincerely value your guidance and understanding. I apologize once again for an
 I look forward to your response.
 
 Yours sincerely,  
-**Pranathi/SreeNidhi/Madhavi/Shiva Chinmayee**  
+**Pranathi/SreeNidhi/Madhavi/Siva Chinmayee**  
 **Roll No.: 2620040061/2620040180/2620080102/2620040174**
